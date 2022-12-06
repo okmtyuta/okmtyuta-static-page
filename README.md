@@ -1,0 +1,1 @@
+# okmtyuta Static Page README
